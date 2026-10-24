@@ -1,10 +1,14 @@
+Some projects may be unavailable publicly due to confidentiality constraints. If materials could not be attached due to platform limitations, email me to request them.
+
+<hr>
+
 # Writing Samples
 
 **TECHNICAL, RESEARCH & CONTENT · 5+ SAMPLES**
 
 A collection spanning literary analysis, technical writing, behavioral research, and content strategy — with a consistent A/A+ record across writing-intensive coursework and faculty feedback highlighting original analysis, strategic depth, and strong comparative reasoning.
 
-Full samples available in the Master Document via request or link. 
+Full samples available in the Master Document via request or link.
 
 **Covers:**
 * Content Strategy & Digital Marketing
